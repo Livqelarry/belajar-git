@@ -1,0 +1,1 @@
+hello, nama saya Praditya Aldi Syahputra.
